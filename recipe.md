@@ -1,0 +1,6 @@
+The process starts by mixing all the dry and wet ingredients separately before being mixed together in a large bowl. The dry ones are flour, baking soda, salt, cocoa powder, and sugar. These are all put together in a large bowl and mixed with a hand whisk.
+The wet ingredients are mixed in 2 parts. The first part is mixing coffee with water (if you are using coffee) and then adding in the rest of the wet ingredients which are milk, vinegar, oil, and vanilla. If you choose to opt for the coffee out, then all the liquid ingredients can be put together at once.
+When combining both the wet and dry ingredients, it is always advisable to pour the wet ones into the dry ones instead of the other way round. This is to avoid the dry ingredients from becoming lumpy. For easy mixing, make a well in the center of the dry ingredients and pour the wet ingredients in.
+Start mixing both by starting in the center and slowly pulling in the the sides as you mix. that way, you will get a nice and smooth cake batter.
+Pour the batter in well-greased and lined cake tins and bake until they are done. Do not overbake as that will cause the cake to dry out.
+Once the cake is baked and completely cooled, it can be frosted and decorated as one wishes.
